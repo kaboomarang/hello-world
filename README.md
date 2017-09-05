@@ -1,1 +1,1 @@
-#Please help me find Ruth.
+Find Ruth.
